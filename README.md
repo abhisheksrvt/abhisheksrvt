@@ -53,6 +53,6 @@ I'm always open to collaboration and networking. Feel free to reach out if you'd
 share knowledge, or just chat!
 
 - [LinkedIn](https://www.linkedin.com/in/abhisheksrvt)
-- [Email](mailto:srvt.abhishek@gmail.com)
+- [Email](mailto:abhisheksrvt7@gmail.com)
 
 Thank you for visiting my profile! Let's build the future together! 🌟
